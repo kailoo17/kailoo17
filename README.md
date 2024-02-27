@@ -11,12 +11,11 @@ Wassappppp fellazzzzz
 - I like music so much
 - I like to make a funny jokes
 - I'm a coffee addicted
-- ⚡ Personality : INFP-T
+- ⚡ Person with INFP-T personality
 - Hobby :
 - Hearing music
 - Reading
 - Gaming
-- etc.
   
 
 <!---
